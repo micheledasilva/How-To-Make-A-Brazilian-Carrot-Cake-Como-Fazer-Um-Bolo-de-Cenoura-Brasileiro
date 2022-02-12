@@ -3,3 +3,4 @@
 Recipes-Receitas 👩‍🍳
 https://youtu.be/qoiXMk19PnA
 VISITE também o meu canal no YouTube 🇧🇷 Meu Brasil Brasileiro E Estrangeiro 🎬
+https://www.youtube.com/channel/UCe47oThIfMKtChAAgnTaTcg
